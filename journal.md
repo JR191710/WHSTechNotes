@@ -14,3 +14,20 @@ I really think that the use of Artificial intellegience can be used tro help peo
 
 # September 22, 2025
 I think that working in a virtual store is a bad idea for both the brand responsible for making the game and the player playing the game. The brand can gain recognition for the game whether good or bad and they can recieve a reputaion depending on the response for the quality of thier game. At the same time the brand responsible for making the game are actively losing money while people are taking up thier virtual job. The person playing the game cannot gain any experience of having an actual job, and working in a virtual store for 16.10 and hour is not a sustanable job. The player is gaining money from voluntering but is actively sacrificing time in exchange making it bad.
+
+# October 7-9, 2025 
+Hour of Code
+
+# October 14, 2025
+Today using Canva AI i generated a interactive slide deck that teaches and explains step by step to students how use basic Math formulas step by step. My specific prompt for this slide was "Generate a interactive slideshow that teaches and explains how to solve for area step by step." When I created it, it went better than I expected, it went in depth on how to solve for area. The only part that didnt come as expected was that it went above and beyond by including formulas meant for different shapes like triangles, sqaures and circles without messing up the slides.
+I could now see how prompt engineering can be very valuable in the future for careers by providing creativity in projects, slide shows or even ideas for software development, since it can generate things like images, slide show presentations and even code but it varies depending on what you use.
+
+# October 17, 2025
+I finished the code.org assignment
+Ocean Ai
+
+# October 20, 2025
+unfinished puzzle
+
+# October 21, 2025
+
