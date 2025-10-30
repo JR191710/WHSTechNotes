@@ -23,8 +23,7 @@ Today using Canva AI i generated a interactive slide deck that teaches and expla
 I could now see how prompt engineering can be very valuable in the future for careers by providing creativity in projects, slide shows or even ideas for software development, since it can generate things like images, slide show presentations and even code but it varies depending on what you use.
 
 # October 17, 2025
-I finished the code.org assignment
-Ocean Ai
+OCEAN AI PUZZLE: COMPLETED
 
 # October 20, 2025
 unfinished puzzle
@@ -38,5 +37,11 @@ Lesson 3 code: COMPLETE
 # October 23, 2025
 Lesson 4 code: COMPLETE
 
-# October 24
-waiting...
+# October 24, 2025
+Lesson 5 code: COMPLETED
+
+# October 27, 2025
+unfinished puzzle
+
+# October 28, 2025
+Lesson classic maze: COMPLETED
