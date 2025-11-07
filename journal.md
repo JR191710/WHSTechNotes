@@ -45,3 +45,10 @@ unfinished puzzle
 
 # October 28, 2025
 Lesson classic maze: COMPLETED
+
+# November 3, 2025
+
+# November 5, 2025
+
+# November 6, 2025
+Flappy Code: Completed
