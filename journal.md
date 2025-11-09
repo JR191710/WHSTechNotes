@@ -47,8 +47,10 @@ unfinished puzzle
 Lesson classic maze: COMPLETED
 
 # November 3, 2025
+SNAP is a program that was made to help millions of people buy food and grocieries each month,but recently over the weekend it has unfortunely lost its all funding. Now becuase of this people associaed with the program are not guaranteed to recieve benefits. Now certain people have to meet the right standards to recieve those said benefits like coming from a low income home and the people who are gettng these benefits are now children, the elderly, and people with disaabilities. One way SNAP can solve this problem is through the use of technology, With technology it can help people in many ways such as online shopping to search for certain grocieries on low prices. Another way is using software such as google maps, This way people in need of food can look up locations of nearby food banks so that they may spend less money on food.
 
 # November 5, 2025
+Anna and Elsa code: Completed
 
 # November 6, 2025
 Flappy Code: Completed
