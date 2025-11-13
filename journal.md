@@ -73,7 +73,8 @@ Flappy Code: Completed
 
 # November 10, 2025
 
-
+In 9 days from now is when every student in the jisd district wil be going to summer break. Im sure everyone is looking forward to it because so am i. I get to have more time to do what i love, work with my dad to make some extra money on the side, and play american football with my friends. I hope to use this time to practice as much as i can for football and make connect to my family and friends while on break.
 
 # November 12, 2025
 
+interactive map code: Completed
