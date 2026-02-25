@@ -78,3 +78,66 @@ In 9 days from now is when every student in the jisd district wil be going to su
 # November 12, 2025
 
 interactive map code: Completed
+
+# START OF SECOND SEMESTER-------------------------------
+
+
+# January 6, 2026
+
+
+# January 12, 2026
+
+
+# Janaury 20, 2026
+
+
+# Janaury 27
+
+
+# January 29th, 2026 JOURNAL
+
+
+# January 30, 2026 (Lesson 16)
+
+
+# Febuary 2, 2026 JOURNAL
+
+
+# Febuary 3, 2026 INFORMATIONAL TECHNOLOGY SURVEY------
+
+
+# February 3, 2026 (Lessonn 17)
+
+
+# February 4, 2026 (Lesson 18)
+
+
+# February 5, 2026 (Lesson 19)
+
+
+# February 10, 2026 JOURNAL
+
+
+# February 11, 2026 (Lesson 20)
+
+
+# February 12, 2026 (Lesson 21)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
