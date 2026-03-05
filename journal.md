@@ -124,7 +124,7 @@ interactive map code: Completed
 # February 12, 2026 (Lesson 21)
 
 
-
+# Grading period- lesson 26, and journal from march 2nd)
 
 
 
