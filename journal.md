@@ -89,8 +89,7 @@ Over my winter break, theres one activity that every student did that they can o
 Safe spaces are needed online so that the people using a app or software remain and use it without feeling skeptical or unease. Autcraft was designed for people with autism to play the game Minecraft in a safe space. Developers who design thier game should assure thier clients that thier software does't harm thier users so that there is an active community who can enjoy thier game. The kinds of harm that can happen from unmoderated spaces are things like doxing your adress, threats of violence, and or kidnapping. Autcraft is a prime example of how a safe space should look like, the developers provide the safety and isolation for safety for thier players while assuring gameplay with other people online that can't harm thier users.
 
 # Janaury 20, 2026
-
-
+One way technology can promote fairness and justice is teach children morals. Children of any ages are always on thier phone or technology system, so if children are always on thier device daily it would be beneficial to the world if they we're taught how to treat one another right. there are a several amount of apps and shows that are mmade for children and one thing they teach kids are morals for example a P.B.S kids show called "xavier riddle and the secret museum". This show teaches children how different and unfair the world was back then compared to today,there are real world figures used in thier show and it teaches children how your actions can change the world and affect others.
 # Janaury 27
 
 
