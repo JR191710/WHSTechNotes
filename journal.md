@@ -83,7 +83,7 @@ interactive map code: Completed
 
 
 # January 6, 2026
-
+Over my winter break, theres one activity that every student did that they can obviously relate to and that is the use of technology. During my break i used technology in many different ways in my home, that includes entertainment. I couldnt go outside as much during my break so i used technology to talk and interact with my friends online and i also played video games a lot before school resumed. Overall, my winter break wasnt so bad even though I dont enjoy being inside most of the time, your break can be enjoyed in anyway as long as its entertaining and relaxing.
 
 # January 12, 2026
 
