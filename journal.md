@@ -85,19 +85,25 @@ interactive map code: Completed
 # January 6, 2026
 Over my winter break, theres one activity that every student did that they can obviously relate to and that is the use of technology. During my break i used technology in many different ways in my home, that includes entertainment. I couldnt go outside as much during my break so i used technology to talk and interact with my friends online and i also played video games a lot before school resumed. Overall, my winter break wasnt so bad even though I dont enjoy being inside most of the time, your break can be enjoyed in anyway as long as its entertaining and relaxing.
 
+
 # January 7, 2026 
 Lesson 8 COMPLETED
+
 
 # January 8, 2026 
 Lesson 9 COMPLETED
 
+
 # January 9, 2026 ESSAY: TEST GRADE--------
+
 
 # January 12, 2026 JOURNAL
 Safe spaces are needed online so that the people using a app or software remain and use it without feeling skeptical or unease. Autcraft was designed for people with autism to play the game Minecraft in a safe space. Developers who design thier game should assure thier clients that thier software does't harm thier users so that there is an active community who can enjoy thier game. The kinds of harm that can happen from unmoderated spaces are things like doxing your adress, threats of violence, and or kidnapping. Autcraft is a prime example of how a safe space should look like, the developers provide the safety and isolation for safety for thier players while assuring gameplay with other people online that can't harm thier users.
 
+
 # Janaury 20, 2026 JOURNAL
 One way technology can promote fairness and justice is teach children morals. Children of any ages are always on thier phone or technology system, so if children are always on thier device daily it would be beneficial to the world if they we're taught how to treat one another right. there are a several amount of apps and shows that are mmade for children and one thing they teach kids are morals for example a P.B.S kids show called "xavier riddle and the secret museum". This show teaches children how different and unfair the world was back then compared to today,there are real world figures used in thier show and it teaches children how your actions can change the world and affect others.
+
 
 # Janaury 27
 
@@ -134,27 +140,36 @@ LESSON 19 COMPLETED
 # February 11, 2026 
 LESSON 20 COMPLETED
 
+
 # February 12, 2026 
 LESSON 21 COMPLETED
 
+
 # February 23, 2026 JOURNAL
+
 
 # February 24, 2026 
 LESSON 22 
 
+
 # February 25, 2026 
 LESSON 23
+
 
 # February 26, 2026 
 LESSON 24 
 
+
 # March 2, 2026 JOUNRAL ENTRY:
+
 
 # March 3, 2026 
 LESSON 25
 
+
 # March 4, 2026 
 LESSON 26
+
 
 # Grading period- lesson 26, and journal from march 2nd)
 
