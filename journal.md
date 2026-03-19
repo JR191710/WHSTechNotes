@@ -89,7 +89,7 @@ Over my winter break, theres one activity that every student did that they can o
 
 # January 8, 2026 Lesson 9, COMPLETED
 
-# January 9, 2026 ESSAY
+# January 9, 2026 ESSAY: TEST GRADE--------
 
 # January 12, 2026
 Safe spaces are needed online so that the people using a app or software remain and use it without feeling skeptical or unease. Autcraft was designed for people with autism to play the game Minecraft in a safe space. Developers who design thier game should assure thier clients that thier software does't harm thier users so that there is an active community who can enjoy thier game. The kinds of harm that can happen from unmoderated spaces are things like doxing your adress, threats of violence, and or kidnapping. Autcraft is a prime example of how a safe space should look like, the developers provide the safety and isolation for safety for thier players while assuring gameplay with other people online that can't harm thier users.
@@ -102,33 +102,44 @@ One way technology can promote fairness and justice is teach children morals. Ch
 # January 29th, 2026 JOURNAL
 
 
-# January 30, 2026 (Lesson 16)
+# January 30, 2026 LESSON 16
 
 
 # Febuary 2, 2026 JOURNAL
 
 
-# Febuary 3, 2026 INFORMATIONAL TECHNOLOGY SURVEY------
+# Febuary 3, 2026 INFORMATIONAL TECHNOLOGY SURVEY------ COMPLETED
 
 
-# February 3, 2026 (Lessonn 17)
+# February 3, 2026 LESSON 17 COMPLETED
 
 
-# February 4, 2026 (Lesson 18)
+# February 4, 2026 LESSON 18 COMPLETED
 
 
-# February 5, 2026 (Lesson 19)
+# February 5, 2026 LESSON 19 COMPLETED
 
 
 # February 10, 2026 JOURNAL
 
 
-# February 11, 2026 (Lesson 20)
+# February 11, 2026 LESSON 20 COMPLETED
 
+# February 12, 2026 LESSON 21 COMPLETED
 
-# February 12, 2026 (Lesson 21)
+# February 23, 2026 JOURNAL
 
+# February 24, 2026 LESSON 22 
 
+# February 25, 2026 LESSON 23
+
+# February 26, 2026 LESSON 24 
+
+# March 2, 2026 JOUNRAL ENTRY:
+
+# March 3, 2026 LESSON 25
+
+# March 4, 2026 LESSON 26
 # Grading period- lesson 26, and journal from march 2nd)
 
 
