@@ -94,42 +94,54 @@ Lesson 8 COMPLETED
 Lesson 9 COMPLETED
 
 
-# January 9, 2026 ESSAY: TEST GRADE--------
+# January 9, 2026 CLASSROOM RESPONSIBILITY ESSAY: TEST GRADE--------
+  In our classroom, we are expected not to eat or drink at the computers and throw our trash away at the end of class. This rule matters and shouldn't even be a rule in mrs whitby's clas becuase we should already know what we can and cannot do and becuase we are reminded constantly by ms whitby. The reason why we need to follow this class expectation is to prevent damage of our school property and also so that the janitors have less work on thier hands.
 
+  We shouldnt be eating in class becuase we can accidently break on of the school computers. Every time i see someone in the class with a drink on thier desk its always open and next to the computer. If we are not careful and the drink is spilled all over the computer it can break and then the student will be responsible for repair bills and ms whitby can get in trouble for student's not listening to her rules. Overall the destruction of a school computer can lead to problems for both a student and teacher so we should make sure we listen.
+
+  The janitors are always cleaning our messes in the cafeteria so we should't be making a bigger mess for them. We are grown teenagers in highschool and we should know how to throw our trash away instead of being disgusting. The janitors aren't payed enough to deal with all this mess and they are required to stay after school to clean any extra messes we make, so really we're just making it worse for the janitors who arent even getting paid that extra for our very extra messes.
+
+  In conclusion We should listen to ms whitby's rules becuase her rules are preventing us from hurting one another, getting into trouble and overall creating good habits. We can learn a lot from this classroom expectation that really shouldnt even be that hard to follow. This rule should be followed and appreciated so that we can put let stress on ms whitby and the staff of our school.
+  
 
 # January 12, 2026 JOURNAL
 Safe spaces are needed online so that the people using a app or software remain and use it without feeling skeptical or unease. Autcraft was designed for people with autism to play the game Minecraft in a safe space. Developers who design thier game should assure thier clients that thier software does't harm thier users so that there is an active community who can enjoy thier game. The kinds of harm that can happen from unmoderated spaces are things like doxing your adress, threats of violence, and or kidnapping. Autcraft is a prime example of how a safe space should look like, the developers provide the safety and isolation for safety for thier players while assuring gameplay with other people online that can't harm thier users.
 
+
 # January 13, 2026 LESSON 10 COMPLETED
+
 
 # January 14, 2026 LESSON 11 COMPLETED
 
+
 # Janiary 15, 2026 LESSON 12 COMPLETED
+
 
 # Janaury 20, 2026 JOURNAL
 One way technology can promote fairness and justice is teach children morals. Children of any ages are always on thier phone or technology system, so if children are always on thier device daily it would be beneficial to the world if they we're taught how to treat one another right. there are a several amount of apps and shows that are mmade for children and one thing they teach kids are morals for example a P.B.S kids show called "xavier riddle and the secret museum". This show teaches children how different and unfair the world was back then compared to today,there are real world figures used in thier show and it teaches children how your actions can change the world and affect others.
 
+
 # January 21, 2026 LESSON 13 
 COMPLETED
+
 
 # January 22, 2026 LESSON 14 
 COMPLETED
 
+
 # January 23, 2026 LESSON 15 
 COMPLETED
 
-# Janaury 27
-
 
 # January 29th, 2026 JOURNAL
-
+During this week i had Map and telpas testing and it wasnt a bad expeirence. I feel like im on level with my classes and im at the level i should be. Im proud of getting a master's on the algebra test because math is my hardest suubject. Testing wasnt really challenging exceept the part where you have to put your head down after testing. I think my test prep didnt really help with teaching me any strateegies or practice, except letting me know what level i am and what i should work on to improve acedemically.
 
 # January 30, 2026 LESSON 16 
 COMPLETED
 
 
 # Febuary 2, 2026 JOURNAL
-
+Hygienme and self care are important in a shared social enviorment to prevent people from getting sick and feeling grossed out due to another's smell or noise. Things like loud noise and distracting behavior should be managed to prevent student's from being distracted from  what they are working on and have a full thinking compacity. Self regulation is an important skill becuase it shows to others that you arent disrespectul and that your thoughtful on the concentration of others, Self regulation is also something that prevents you from getting into scuffles, altercations and in trouble. Even if im listing these things that are notably done in this class that doesnt exclude my behavior, One habit i can improve is my tone and voice level becuase i am a very loud speaker and i dont wish to distract the people in my classroom.
 
 # Febuary 3, 2026 INFORMATIONAL TECHNOLOGY SURVEY------ 
 COMPLETED
@@ -147,7 +159,7 @@ LESSON 19 COMPLETED
 
 
 # February 10, 2026 JOURNAL
-
+I absolutely love the sport of football, everyday i wake up i hope to put in as much work and improve a lot from practice for football. I hope one day to become a d1 runningback so i can make it to the NFL, even though it might not be likely i still want to attempt to achive my dream of making it to the NFL. I didnt watch Super Bowl LX becuase i dont really watch games like those, i just watch the NFL's normal season in general to take notes on how the runningbacks play and also becuase i havent really gone around to watching a super bowl,i also dont know where to start and i dont want to start at a random spot.
 
 # February 11, 2026 
 LESSON 20 COMPLETED
@@ -158,6 +170,7 @@ LESSON 21 COMPLETED
 
 
 # February 23, 2026 JOURNAL
+In the 2026 Winter Olympics there was use of technology by the athletes and event to assure peak peformance, and timing. I think the equipment that played a role in the Olympics was the timing system. Usually in each event there are two athletes that tie or finish side by side. In a case or scenario of this happening in a race the timing system can accurately detect who crossed the line first in events like bob sleigh.
 
 
 # February 24, 2026 
@@ -173,7 +186,8 @@ LESSON 24
 
 
 # March 2, 2026 JOUNRAL ENTRY:
-
+Two tech job companies in san antonio are rockspace technology and plus one robotics. 
+If i were to pick one over the other i would pick rockspace techology. I would pick rockspace technology becuase it has more jobs compared to Plus one robotics, which include AI & data, cloud enginerring and architechture. its a bit harder to be hired for a job due to the requirements compared to one plus robotics, the requirements include a bachlor's degree and job experience but the pay of 110k per year really makes up for it. Due to these requirements and benefits its a clear choice to my mind that i would pick a job at Rockspace Technology due to the easy jobs, Payment per year and requirements.
 
 # March 3, 2026 
 LESSON 25
