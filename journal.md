@@ -197,12 +197,21 @@ LESSON 25
 LESSON 26
 
 
-# Grading period- lesson 26, and journal from march 2nd)
+# GRADING PERIOD- March 20 (ALL JOURNALS FROM THE START TO MARCH 4TH AND ALL LESSON 1-26
 
 
+# BEGININNG OF THE 4th 9 WEEKS--------------------
 
 
+# March 23, 2026 JOURNAL ENTRY
 
+
+# March 24, 2026 CODE.ORG
+LESSON 27: COMPLETED
+
+
+# March 25, 2026 CODE.ORG
+LESSON 28: COMPLETED
 
 
 
