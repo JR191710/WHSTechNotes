@@ -136,14 +136,17 @@ COMPLETED
 # January 29th, 2026 JOURNAL
 During this week i had Map and telpas testing and it wasnt a bad expeirence. I feel like im on level with my classes and im at the level i should be. Im proud of getting a master's on the algebra test because math is my hardest suubject. Testing wasnt really challenging exceept the part where you have to put your head down after testing. I think my test prep didnt really help with teaching me any strateegies or practice, except letting me know what level i am and what i should work on to improve acedemically.
 
-# January 30, 2026 LESSON 16 
+# January 30, 2026 
+LESSON 16 
 COMPLETED
 
 
-# Febuary 2, 2026 JOURNAL
+# Febuary 2, 2026 
+JOURNAL
 Hygienme and self care are important in a shared social enviorment to prevent people from getting sick and feeling grossed out due to another's smell or noise. Things like loud noise and distracting behavior should be managed to prevent student's from being distracted from  what they are working on and have a full thinking compacity. Self regulation is an important skill becuase it shows to others that you arent disrespectul and that your thoughtful on the concentration of others, Self regulation is also something that prevents you from getting into scuffles, altercations and in trouble. Even if im listing these things that are notably done in this class that doesnt exclude my behavior, One habit i can improve is my tone and voice level becuase i am a very loud speaker and i dont wish to distract the people in my classroom.
 
-# Febuary 3, 2026 INFORMATIONAL TECHNOLOGY SURVEY------ 
+# Febuary 3, 2026 
+INFORMATIONAL TECHNOLOGY SURVEY------ 
 COMPLETED
 
 # February 3, 2026 
@@ -158,7 +161,8 @@ LESSON 18 COMPLETED
 LESSON 19 COMPLETED
 
 
-# February 10, 2026 JOURNAL
+# February 10, 2026 
+JOURNAL
 I absolutely love the sport of football, everyday i wake up i hope to put in as much work and improve a lot from practice for football. I hope one day to become a d1 runningback so i can make it to the NFL, even though it might not be likely i still want to attempt to achive my dream of making it to the NFL. I didnt watch Super Bowl LX becuase i dont really watch games like those, i just watch the NFL's normal season in general to take notes on how the runningbacks play and also becuase i havent really gone around to watching a super bowl,i also dont know where to start and i dont want to start at a random spot.
 
 # February 11, 2026 
@@ -169,7 +173,8 @@ LESSON 20 COMPLETED
 LESSON 21 COMPLETED
 
 
-# February 23, 2026 JOURNAL
+# February 23, 2026 
+JOURNAL
 In the 2026 Winter Olympics there was use of technology by the athletes and event to assure peak peformance, and timing. I think the equipment that played a role in the Olympics was the timing system. Usually in each event there are two athletes that tie or finish side by side. In a case or scenario of this happening in a race the timing system can accurately detect who crossed the line first in events like bob sleigh.
 
 
@@ -185,7 +190,8 @@ LESSON 23
 LESSON 24 
 
 
-# March 2, 2026 JOUNRAL ENTRY:
+# March 2, 2026 
+JOUNRAL ENTRY:
 Two tech job companies in san antonio are rockspace technology and plus one robotics. 
 If i were to pick one over the other i would pick rockspace techology. I would pick rockspace technology becuase it has more jobs compared to Plus one robotics, which include AI & data, cloud enginerring and architechture. its a bit harder to be hired for a job due to the requirements compared to one plus robotics, the requirements include a bachlor's degree and job experience but the pay of 110k per year really makes up for it. Due to these requirements and benefits its a clear choice to my mind that i would pick a job at Rockspace Technology due to the easy jobs, Payment per year and requirements.
 
@@ -203,17 +209,21 @@ LESSON 26
 # BEGININNG OF THE 4th 9 WEEKS--------------------
 
 
-# March 23, 2026 JOURNAL ENTRY
+# March 23, 2026 
+JOURNAL ENTRY
 
 
-# March 24, 2026 CODE.ORG
+# March 24, 2026 
+CODE.ORG
 LESSON 27: COMPLETED
 
 
-# March 25, 2026 CODE.ORG
+# March 25, 2026 
+CODE.ORG
 LESSON 28: COMPLETED
 
-# April, 20, 2026 JOURNAL
+# April, 20, 2026 
+JOURNAL
 FREE WEEK
 YIPPEEEEE >:D
 
