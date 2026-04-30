@@ -222,10 +222,36 @@ LESSON 27: COMPLETED
 CODE.ORG
 LESSON 28: COMPLETED
 
+# March 30, 2026
+Journal
+
+# Mach 31, 2026
+
+# April, 9, 2026
+Journal
+
+# April 10, 2026
+LESSON 31 PROJECT COMPLETED
+
+# April, 13, 2026
+Jounral
+
+# April, 16, 2026
+LESSON 1 and 2
+
+# April 20, 2026
+Journal
+
+# April 22, 2026
+
+# April 23, 2026
+
+# April 27, 2026
+
+# April 28, 2026
+
 # April, 20, 2026 
-JOURNAL
-FREE WEEK
-YIPPEEEEE >:D
+JOURNAL: FREE DAY >:D
 
 
 
