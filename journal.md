@@ -210,7 +210,8 @@ LESSON 26
 
 
 # March 23, 2026 
-JOURNAL ENTRY
+JOURNAL ENTRY:
+During the bracket challenge I researched the many teams playing and thier players so that i could have a better idea of how good they are. I watched games, read stats and used brackets from previous years to finally come up with my predictions. Computer programming can better help predictions becuase its used to hold and compare data from previous years instead of just outright guessing, old brackets and team rankings can help folks come up with a close to accurate answer.
 
 
 # March 24, 2026 
@@ -225,13 +226,14 @@ LESSON 28: COMPLETED
 # March 30, 2026
 Journal
 
-# Mach 31, 2026
-Lesson 30
+# March 31, 2026
+LESSON 30 COMPLETED
+
+# April 1, 2026
+LESSON 31 PROJECT COMPLETED
+
 # April, 9, 2026
 Journal
-
-# April 10, 2026
-LESSON 31 PROJECT COMPLETED
 
 # April, 13, 2026
 Jounral
@@ -241,15 +243,22 @@ LESSON 1 and 2
 
 # April 20, 2026
 Journal
+Ai content can be entertaining but its not gonna explode as much as a real life content creator, youtuber or music artist.
 
 # April 22, 2026
-3
+LESSON 3 COMPLETED
+
 # April 23, 2026
-4
+LESSON 4 COMPLETED
+
 # April 27, 2026
-journal
+JOURNAL:
+This whole week ive doing something football related, one thing ive notied though is that technology also plays a huge critical role in the sport. Football can be used to track data on a athlete and it can also help people inprove on thier form when it comes to plays. In football we do a fun activity called bread and butter where we play against our own school's defence. This week i played a total of 4 plays and i improved
+with each following session becuase i watched recordings of my plays and took in account each of my mistakes to work on what i did bad.
+
 # April 28, 2026
-5
+LESSON 5 COMPLETED
+
 # April, 20, 2026 
 JOURNAL: FREE DAY >:D
 
