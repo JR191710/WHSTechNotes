@@ -226,7 +226,7 @@ LESSON 28: COMPLETED
 Journal
 
 # Mach 31, 2026
-
+Lesson 30
 # April, 9, 2026
 Journal
 
@@ -243,13 +243,13 @@ LESSON 1 and 2
 Journal
 
 # April 22, 2026
-
+3
 # April 23, 2026
-
+4
 # April 27, 2026
-
+journal
 # April 28, 2026
-
+5
 # April, 20, 2026 
 JOURNAL: FREE DAY >:D
 
