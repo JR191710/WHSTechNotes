@@ -233,7 +233,8 @@ LESSON 30 COMPLETED
 LESSON 31 PROJECT COMPLETED
 
 # April, 9, 2026
-Journal
+Journal: 
+If i were stuck  in a ship trapped by AI I would leqrn how the AI's code works. If i can learn how the AI's code works i can finally come up with a plan to make a plan
 
 # April, 13, 2026
 Jounral
@@ -243,7 +244,7 @@ LESSON 1 and 2
 
 # April 20, 2026
 Journal
-Ai content can be entertaining but its not gonna explode as much as a real life content creator, youtuber or music artist.
+Ai content can be entertaining but its not gonna explode as much as a real life content creator, youtuber or music artist. AI can only follow prompts and use other people's works to make videos of thier own. That means that AI's content won't be unique or anything special if the AI is trained by another person's content. AI can always copy another's work but it won't understand the emotion, commentary, or humor that human's feel when watching content. Overall AI can not make better content and it will never be better than human made content becuase AI can never generate the same creativity that goes into all forms of art that influences or entertains a human.
 
 # April 22, 2026
 LESSON 3 COMPLETED
