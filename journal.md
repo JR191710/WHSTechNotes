@@ -235,13 +235,13 @@ LESSON 31 PROJECT COMPLETED
 
 # April, 9, 2026
 Journal: 
-If i were stuck  in a ship trapped by AI I would leqrn how the AI's code works. If i can learn how the AI's code works i can finally come up with a plan to make a plan
+If i were ever stuck on a ship trapped by AI, I would learn how the AI's code works. I know learning an AI's code is very hard and sounds pointless even. In my opinion learning how an AI works can help you have a greater idea of how to by pass it in a way. If i learned how an AI's code worked, i would use that knowledge to manipulate the AI into letting me out. If the AI is programmed to keep me sutck on the ship eventually necessary items will run low, and if the AI's responsibility is to keep me safe and alive, i would manipulate the AI into thinking that i am helping them with thier task by letting me out for food and water. One risk is that the AI will maybe understand im trying to trick it, but if i can manipulate it correctly the first time I would be able to escape.
 
 # April, 13, 2026
 Jounral
 
 # April, 16, 2026
-LESSON 1 and 2
+LESSON 1 and 2: COMPLETED
 
 # April 20, 2026
 Journal
@@ -261,8 +261,22 @@ with each following session becuase i watched recordings of my plays and took in
 # April 28, 2026
 LESSON 5 COMPLETED
 
-# April, 20, 2026 
-JOURNAL: FREE DAY >:D
+# April, 30, 2026 
+Lesson 6 COMPLETED
+
+# May 6, 2026
+JOURNAL:
+
+# May 7, 2026
+LESSON 7
+
+# May 11, 2026
+Journal:
+
+# May 13, 2026
+LESSON 8
+
+
 
 
 
