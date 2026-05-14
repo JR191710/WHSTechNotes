@@ -224,7 +224,8 @@ CODE.ORG
 LESSON 28: COMPLETED
 
 # March 30, 2026
-Journal
+Journal: 
+Duuring March madness there were major upsets that happened this year for women's baskeball, One example includes NO. 10 Virginia beating NO. 2 lowa. No one ever expected this and its suprising that people couldnt predict who would win becuase during the game Virginia was being way more effiecient with hitting thier shots and with less attempts compared to lowa. Computers are a great way to predict how a game can turn out becuase of stored data from previous years but one thing that should be considered is that every year roster's change and players can improve drastically which can boost a team's chances in winning. If i bulit a program to predict the outcomes of games, I would simply consider what players are on the roster and use data from recent games and player's stat sheet to determine whether or not certain players improved to see if the whole team imrproved overall.
 
 # March 31, 2026
 LESSON 30 COMPLETED
