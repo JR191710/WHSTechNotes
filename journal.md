@@ -278,6 +278,7 @@ LESSON 8
 
 # May 18, 2026
 JOURNAL
+If I had to describe Marlo Guillory to the cops, I would say they are the kind of person to stay up all night to play video games so they would look increadibly tired with bags under thier eyes. Marlo Guillory wears black thick glasses, his haircut is long twists that reaches to his ears. Marlo usually wears a red or black hoodie with gray or black pants all the time, He is often on is phone and always says "cool beans" in understandment or if he agrees with a statement. Marlo is very dry, nonchalount and calm but funny all the time and stays out of trouble He would probably be found in Gamestop browsing for new games or an arcade to play games, or a restaurant since he really likes food and knows how to cook.
 
 
 
