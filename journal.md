@@ -266,12 +266,15 @@ Lesson 6 COMPLETED
 
 # May 6, 2026
 JOURNAL:
+I personally would like to avoid in assiting AI, but as long as I or anyone else own a phone that will unfortunely never happen. AI can be trained in many ways which include, liking AI posts, giving it your own or others piece of art, and or giving it tasks that make AI generate images, videos and solve questions. Helping AI is so unavoidable to the point that even seeing a AI generated youtube video for a second gives AI data telling it if people enjoy the type of content it makes or not. AI impacts platforms very greatly to the point that so much of the content is made by AI and most apps with like TIKTOK or INSTAGRAM also include an AI assistant for the people using thier apps. AI also changes platforms in the Art industry becuase of the Art from different creators going into training for AI, The only way to really fight against training AI is if everyone ignored the use of AI but with companies using it for data collection that doesnt seem very possible. 
 
 # May 7, 2026
 LESSON 7
 
 # May 11, 2026
-Journal:
+JOURNAL
+Now that the school year is ending ive been noticing more frequnetly with time that i have grew in different areas of my capabilities, habits or behaviors. In school ive improved on Emotional maturity to be able to speak to my friends and or teachers without causing any problems. Ive also improved my communication which has contributed into my friendships, with my improved understanding of communication i can now grow my current friendships and have a better success at getting to know someone. Outside of school ive gotten way better at sports and art, In football ive gotten way stronger at lifting and faster at sprinting as well as playing as a Running Back. Lastly in Art ive been able to improve my effiency at making pieces of art as well as putting in more noticable details that my friends and other people i show my art to.
+
 
 # May 13, 2026
 LESSON 8
